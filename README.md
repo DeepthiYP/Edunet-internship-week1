@@ -1,1 +1,1 @@
-# Edunet-internship-week1 and week 2
+# Edunet-internship-week1,week 2 and week 3
